@@ -1,0 +1,5 @@
+What is DERCoin?
+
+DERCoin is an innovative token on the Binance Smart Chain, created by a team passionate about wildlife and environmental conservation. DERCoin offers a unique multi-stage rewards system for staking, along with a strong focus on NFTs, allowing token holders to benefit in various ways. Every person who holds DERCoin contributes to improving the lives of wild animals, such as deer and turtles, as the team dedicates part of the proceeds to initiatives aimed at protecting these species. Additionally, a portion of the profits from DERCoin is used to raise awareness about the importance of caring for nature and preserving wildlife. DERCoin is a sustainable, long-term project with a clear roadmap that includes goals such as listings on exchanges, rewards for HODLers, and the creation of an exclusive NFT marketplace.
+
+Join us on this journey!
